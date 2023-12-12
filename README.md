@@ -1,4 +1,4 @@
-# Hello 👋
+![](https://media.giphy.com/media/KiMBUPZUhUg4HRV6PW/giphy.gif)
 
 ## About Me
 
